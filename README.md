@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @366594
+- 👋 Hi, I’m @BrandtaucherS OEM
 - 👀 I’m interested in ... sucessfull power
-- 🌱 I’m currently learning ... www, League of Legend new parametres
+- 🌱 I’m currently learning ... Exploring the content of computer games to create unrivaled gameplay
 - 💞️ I’m looking to collaborate on ... INTEL
 - 📫 How to reach me ... underworking holiday
 
