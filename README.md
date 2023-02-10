@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @BrandtaucherS OEM
-- 👀 I’m interested in ... sucessfull power
+- 👀 I’m interested in ... creative investigation
 - 🌱 I’m currently learning ... Exploring the content of computer games to create unrivaled gameplay
-- 💞️ I’m looking to collaborate on ... INTEL
-- 📫 How to reach me ... underworking holiday
+- 💞️ I’m looking to collaborate on ... INTEL, Microsoft Support
+- 📫 How to reach me ... gain long-term trust
 
 <!---
 366594/366594 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
