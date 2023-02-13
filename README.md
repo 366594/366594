@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... creative investigation
 - 🌱 I’m currently learning ... Exploring the content of computer games to create unrivaled gameplay
 - 💞️ I’m looking to collaborate on ... INTEL, Microsoft Support
-- 📫 How to reach me ... gain long-term trust
+- 📫 How to reach me ... long-term trust
 
 <!---
 366594/366594 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
